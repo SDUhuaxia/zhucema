@@ -1,5 +1,5 @@
 # 通全球ss代理加速器注册邀请码
-地址：http://ss.tongquanqiu.top/
+地址：http://www.tongquanqiu.top/
 
 2017-7-30更新...  
 347871	3rUrB0KXOiFAIkpTsZAYYLijGLpVKQra	可用  
